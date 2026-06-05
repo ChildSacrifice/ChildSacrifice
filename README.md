@@ -1,16 +1,15 @@
 <div align="center">
 
 ![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/20260604_203710.webp)
-
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 
 <p align = "center">
 
 ${\huge\textsf{\color{#a94e3a}  ͜ ° ᛝ  she / he / any  ᛝ ° ͜}}$
 
-${\huge\textsf{\color{#8b3d2c} c + h freely · ── 𓆩♡𓆪 ── · sign. ata pls }}$
+${\textsf{\color{#8b3d2c} c + h freely · ── 𓆩♡𓆪 ── · sign. ata pls }}$
 
-![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\huge\textsf{\color{#6c2718}⊹₊˚‧︵‿₊୨ . w2i . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
+![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\textsf{\color{#6c2718}⊹₊˚‧︵‿₊୨ . w2i . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
 
 <div align="center">
 
@@ -29,9 +28,7 @@ ${\huge\textsf{\color{#8b3d2c} c + h freely · ── 𓆩♡𓆪 ── · sign
 
   <div align=center>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&weight=500&size=22&duration=2000&pause=2000&color=6C2718&center=true&vCenter=true&width=435&lines=I+keep+thinking%2C;%22Surely%2C+somebody+will+save+me%22...;At+every+turn%2C;I+learn+that+no+one+will..." alt="Typing SVG" /></a>
-
-![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
-
 <div align="center">
 
+![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 ![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/20260604_144618.webp)

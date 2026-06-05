@@ -1,62 +1,37 @@
 <div align="center">
 
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/a27163371428107a987e0306025e6fa487d18a0a/20260410_151030.png)
+![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/20260604_203710.webp)
+
+![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 
 <p align = "center">
+
+${\huge\textsf{\color{#a94e3a}  ͜ ° ᛝ  she / he / any  ᛝ ° ͜}}$
+
+${\huge\textsf{\color{#8b3d2c} c + h freely · ── 𓆩♡𓆪 ── · sign. ata pls }}$
+
+![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\huge\textsf{\color{#6c2718}⊹₊˚‧︵‿₊୨ . w2i . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
+
+<div align="center">
+
+![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/61_sin_titulo_20260604201618.webp)
 
 ⊹₊˚<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67522&color=521823&labelColor=a82b31"/></a> ![Image](https://github.com/user-attachments/assets/c522440e-cd4e-4ce7-80ea-a69f20d151fc)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>˚₊⊹
 
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 
 <br>
-<div align="center">
-
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/ea7f023bc48c5be46658a5d97a1e96cfdc8ba2a8/20260411_141434.png)
-
-
-
-
-${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ she / he / any · ── ✦ ── · c + h freely · ── ✦ ── · sign. ata pls ୧₊‿︵‧˚₊⊹}}$
-
-![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\textsf{\color{#7d282c}⊹₊˚‧︵‿₊୨ . w2i . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
-
-<br>
-
-
-
-<br>
 <div align=center>
 
-  ${\textsf{\color{#5E0E23}⊹₊˚‧︵‿₊୨}}$ <a href="https://ppanchiko.atabook.org/"><b>atabook</b></a> <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/5656cea2-ec5f-402f-899a-ba3a1f1f9677" /> <a href="https://ppanchiko.straw.page"><b>strawpage</b></a> ${\textsf{\color{#5E0E23}୧₊‿︵‧˚₊⊹}}$
+  ${\textsf{\color{#6c2718} ┈━┈}}$ <a href="https://ppanchiko.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/5656cea2-ec5f-402f-899a-ba3a1f1f9677" /> <a href="https://ppanchiko.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b></a> ${\textsf{\color{#6c2718} ┈━┈}}$
 </div>
 <br>
 
-![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
-
-
-
-
-
-  
-  
-  
-  
-  
-  
-  
-
-  
-  <br>
   <div align=center>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&weight=500&size=25&pause=2000&color=5E0E23&center=true&width=435&lines=%22...My+one+and+only...%22;%22...+Precious+%E2%99%A1...%22" alt="Typing SVG" /></a>
-  </div>
-
-<br>
-
-<br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&weight=500&size=22&duration=2000&pause=2000&color=6C2718&center=true&vCenter=true&width=435&lines=I+keep+thinking%2C;%22Surely%2C+somebody+will+save+me%22...;At+every+turn%2C;I+learn+that+no+one+will..." alt="Typing SVG" /></a>
 
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 
 <div align="center">
 
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/e539f540f1457ecfc53f38ba0f29650a1a52a882/20260410_151048.png)
+![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/20260604_144618.webp)

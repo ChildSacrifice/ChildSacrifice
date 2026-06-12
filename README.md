@@ -9,13 +9,13 @@ ${\huge\textsf{\color{#a94e3a}  ͜ ° ᛝ  𝑺𝒉𝒆 / 𝑯𝒆 / 𝑨𝒏�
 
 ${\textsf{\color{#8b3d2c} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩♡𓆪 ── · 𝑺𝒊𝒈𝒏. 𝑨𝒕𝒂 𝒑𝒍𝒔 }}$
 
-![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\textsf{\color{#6c2718}⊹₊˚‧︵‿₊୨ . 𝒘2𝒊 . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
+![Image](https://github.com/user-attachments/assets/24b58869-ff87-4d9e-b69a-e49fed04aebc) ${\textsf{\color{#6c2718}⊹₊˚‧︵‿₊୨ . 𝒘2𝒊 . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/24b58869-ff87-4d9e-b69a-e49fed04aebc)
 
 <div align="center">
 
 ![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/61_sin_titulo_20260604201618.webp)
 
-⊹₊˚<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%B3%F0%9D%92%90%F0%9D%92%97%F0%9D%92%86%E2%99%A1&extraCount=69066&color=1e2320&labelColor=793119"/></a> ![Image](https://github.com/user-attachments/assets/c522440e-cd4e-4ce7-80ea-a69f20d151fc)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%AC%F0%9D%92%8F%F0%9D%92%97%F0%9D%92%9A%E2%99%A1&extraCount=69610&color=652115&labelColor=2e191f"/></a>˚₊⊹
+⊹₊˚<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%B3%F0%9D%92%90%F0%9D%92%97%F0%9D%92%86%E2%99%A1&extraCount=69066&color=1e2320&labelColor=793119"/></a> ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%AC%F0%9D%92%8F%F0%9D%92%97%F0%9D%92%9A%E2%99%A1&extraCount=69610&color=652115&labelColor=2e191f"/></a>˚₊⊹
 
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 

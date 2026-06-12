@@ -13,7 +13,7 @@ ${\textsf{\color{#8b3d2c} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩♡
 
 <div align="center">
 
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/61_sin_titulo_20260604201618.webp)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/ef4f36098e35a35fd5d4758a092509693278af1e/68_sin_titulo_20260612123018.png)
 
 ⊹₊˚<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%B3%F0%9D%92%90%F0%9D%92%97%F0%9D%92%86%E2%99%A1&extraCount=69066&color=1e2320&labelColor=793119"/></a> ![Image](https://github.com/user-attachments/assets/19bee4a5-dd02-4197-9569-ae3af1a6ad46)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%AC%F0%9D%92%8F%F0%9D%92%97%F0%9D%92%9A%E2%99%A1&extraCount=69610&color=652115&labelColor=2e191f"/></a>˚₊⊹
 

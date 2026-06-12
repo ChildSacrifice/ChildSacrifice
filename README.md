@@ -1,6 +1,6 @@
 <div align="center">
 
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/20260604_203710.webp)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/5be5e2938a4c36e47a39b703ed0af39b931af3d8/65_sin_titulo_20260612114815.png)
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 
 <p align = "center">
@@ -29,4 +29,4 @@ ${\textsf{\color{#8b3d2c} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩♡
 <div align="center">
 
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/7e23bf01be8657d27886ebc4a7a7bc7e7e8b655f/20260604_144618.webp)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/5be5e2938a4c36e47a39b703ed0af39b931af3d8/65_sin_titulo_20260612114329.png)

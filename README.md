@@ -9,7 +9,7 @@ ${\huge\textsf{\color{#a94e3a} 𓆩 ˚ ᛝ 𝑺𝒉𝒆 / 𝑯𝒆 / 𝑨𝒏�
 
 ${\textsf{\color{#8b3d2c} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩}}$ ![Image](https://github.com/user-attachments/assets/e687db27-f5c3-4125-9d67-10e0d6e2d974) ${\textsf{\color{#8b3d2c}𓆪 ── · 𝑺𝒊𝒈𝒏. 𝑨𝒕𝒂 𝒑𝒍𝒔 }}$
 
-![Image](https://github.com/user-attachments/assets/d5421086-066f-4dac-96cd-2b4502e9a119) ${\textsf{\color{#6c2718}⊹₊˚‧︵‿₊୨ . 𝒘2𝒊 . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/d5421086-066f-4dac-96cd-2b4502e9a119)
+![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd) ${\textsf{\color{#6c2718}⊹₊˚‧︵‿₊୨ . 𝒘2𝒊 . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd)
 
 <div align="center">
 

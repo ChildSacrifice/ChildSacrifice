@@ -1,6 +1,6 @@
 <div align="center">
 
-![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/5be5e2938a4c36e47a39b703ed0af39b931af3d8/65_sin_titulo_20260612114815.png)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/2e65672697ab48ea0d04fb72c0d4ef601e41fde4/20260613_221018.png)
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 
 <p align = "center">
@@ -13,7 +13,7 @@ ${\textsf{\color{#8b3d2c} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩}}$
 
 <div align="center">
 
-![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/ef4f36098e35a35fd5d4758a092509693278af1e/68_sin_titulo_20260612123018.png)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/2e65672697ab48ea0d04fb72c0d4ef601e41fde4/20260613_220257.png)
 
 ![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%B3%F0%9D%92%90%F0%9D%92%97%F0%9D%92%86%E2%99%A1&extraCount=69066&color=1e2320&labelColor=793119"/></a> ![Image](https://github.com/user-attachments/assets/068f7fbd-b926-409b-8515-8b65389bf01d)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%AC%F0%9D%92%8F%F0%9D%92%97%F0%9D%92%9A%E2%99%A1&extraCount=69610&color=652115&labelColor=2e191f"/></a>![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)
 
@@ -29,4 +29,4 @@ ${\textsf{\color{#8b3d2c} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩}}$
 <div align="center">
 
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
-![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/5be5e2938a4c36e47a39b703ed0af39b931af3d8/65_sin_titulo_20260612114329.png)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/2e65672697ab48ea0d04fb72c0d4ef601e41fde4/20260613_220448.png)

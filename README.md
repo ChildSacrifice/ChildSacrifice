@@ -28,6 +28,7 @@ ${\textsf{\color{#6d3048} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩}}$
 <div align=center>
 
   ${\textsf{\color{#5d1a23} ┈━┈}}$ <a href="https://ppanchiko.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ![Image](https://github.com/user-attachments/assets/b82fb5f7-0222-47b2-a652-c8cd9ecbe975) <a href="https://ppanchiko.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b></a> ${\textsf{\color{#5d1a23} ┈━┈}}$
+<br>
 
 <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fjalla+One&size=25&duration=2000&pause=2000&color=5D1A23&center=true&vCenter=true&width=500&lines=It's+Fun+To+Lose+;And+To+Pretend" alt="Typing SVG" /></a>

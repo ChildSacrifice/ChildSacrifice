@@ -20,7 +20,7 @@ ${\textsf{\color{#6d3048} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩}}$
 
 ![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/df7de327e58d2964225e4dac4f015d45689f4a81/20260623_113632.png)
 
-![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%B3%F0%9D%92%90%F0%9D%92%97%F0%9D%92%86%E2%99%A1&extraCount=69066&color=1e2320&labelColor=793119"/></a> ![Image](https://github.com/user-attachments/assets/4a93c674-0910-4250-9f13-44627d3d22c3)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%AC%F0%9D%92%8F%F0%9D%92%97%F0%9D%92%9A%E2%99%A1&extraCount=69610&color=652115&labelColor=2e191f"/></a>![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)
+![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%B3%F0%9D%92%90%F0%9D%92%97%F0%9D%92%86&extraCount=72161&color=11162c&labelColor=5d1a23"/></a> ![Image](https://github.com/user-attachments/assets/4a93c674-0910-4250-9f13-44627d3d22c3)<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%AC%F0%9D%92%8F%F0%9D%92%97%F0%9D%92%9A&extraCount=72161&color=5d1a23&labelColor=11162c"/></a> ![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)
 
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 

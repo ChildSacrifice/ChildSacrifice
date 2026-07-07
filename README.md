@@ -10,11 +10,11 @@
 <br>
 <p align = "center">
 
-${\huge\textsf{\color{#475282} 𓆩 ˚ ᛝ 𝑺𝒉𝒆 / 𝑯𝒆 / 𝑨𝒏𝒚  ᛝ ˚ 𓆪 }}$
+${\huge\textsf{\color{#475282} 𓆩 ˚ ᛝ 𝑺𝒉𝒆}}$ ${\huge\textsf{\color{#6d3048}/ 𝑯𝒆 /}}$ ${\huge\textsf{\color{#5d1a23}𝑨𝒏𝒚  ᛝ ˚ 𓆪 }}$
 
-${\textsf{\color{#6d3048} 𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚 · ── 𓆩}}$ ![Image](https://github.com/user-attachments/assets/672a4dd8-cf7a-4f8b-be67-01d82a11daff) ${\textsf{\color{#6d3048}𓆪 ── · 𝑺𝒊𝒈𝒏. 𝑨𝒕𝒂 𝒑𝒍𝒔 }}$
+${\textsf{\color{#475282}𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚}}$ ${\textsf{\color{#6d3048}· ── 𓆩}}$ ![Image](https://github.com/user-attachments/assets/672a4dd8-cf7a-4f8b-be67-01d82a11daff) ${\textsf{\color{#6d3048}𓆪 ── ·}}$ ${\textsf{\color{#5d1a23}𝑺𝒊𝒈𝒏. 𝑨𝒕𝒂 𝒑𝒍𝒔 }}$
 
-![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd) ${\textsf{\color{#5d1a23}⊹₊˚‧︵‿₊୨ . 𝒘2𝒊 . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd)
+![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd) ${\textsf{\color{#475282}⊹₊˚‧︵‿₊}}$ ${\textsf{\color{#6d3048}୨ . 𝒘2𝒊 . ୧}}$ ${\textsf{\color{#5d1a23}₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd)
 
 <div align="center">
 

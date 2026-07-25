@@ -27,7 +27,7 @@ ${\textsf{\color{#475282}𝑪 + 𝑯 𝑭𝒓𝒆𝒆𝒍𝒚}}$ ${\textsf{\colo
 <br>
 <div align=center>
 
-  ${\textsf{\color{#5d1a23} ┈━┈}}$ <a href="https://ppanchiko.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ![Image](https://github.com/user-attachments/assets/b82fb5f7-0222-47b2-a652-c8cd9ecbe975) <a href="https://straw.page/draw?bio=panchos"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b></a> ${\textsf{\color{#5d1a23} ┈━┈}}$
+  ${\textsf{\color{#5d1a23} ┈━┈}}$ <a href="https://ppanchiko.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ![Image](https://github.com/user-attachments/assets/b82fb5f7-0222-47b2-a652-c8cd9ecbe975) <a href="https://panchos.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b></a> ${\textsf{\color{#5d1a23} ┈━┈}}$
 <br>
 
 <br>

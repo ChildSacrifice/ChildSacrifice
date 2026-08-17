@@ -14,17 +14,17 @@
 
 ![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/70fb369282da8f885357850159aca40449803ed1/87%20sin%20t%C3%ADtulo_20260817170343.png)
 
-${\huge\textsf{\color{#475282} 𓆩 ˚ ᛝ 𝑺𝒉𝒆}}$ ${\huge\textsf{\color{#6d3048}/ 𝑯𝒆 /}}$ ${\huge\textsf{\color{#5d1a23}𝑨𝒏𝒚  ᛝ ˚ 𓆪 }}$
+${\huge\textsf{\color{#939795} 𓆩 ˚ ᛝ 𝑺𝒉𝒆}}$ ${\huge\textsf{\color{#c77f81}/ 𝑯𝒆 /}}$ ${\huge\textsf{\color{#c35a71}𝑨𝒏𝒚  ᛝ ˚ 𓆪 }}$
 
-${\textsf{\color{#475282}𝑫𝒏𝒊𝒖𝒇}}$ ${\textsf{\color{#6d3048}· ── 𓆩}}$ ![Image](https://github.com/user-attachments/assets/672a4dd8-cf7a-4f8b-be67-01d82a11daff) ${\textsf{\color{#6d3048}𓆪 ── ·}}$ ${\textsf{\color{#5d1a23}𝒊𝒏𝒕 𝒃𝒚 𝒂𝒕𝒂. 𝒑𝒍𝒔 }}$
+${\textsf{\color{#939795}𝑫𝒏𝒊𝒖𝒇}}$ ${\textsf{\color{#c77f81}𓆩 ♡ 𓆪}}$ ${\textsf{\color{#c35a71}𝒊𝒏𝒕 𝒃𝒚 𝒂𝒕𝒂. 𝒑𝒍𝒔 }}$
 
-![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd) ${\textsf{\color{#475282}⊹₊˚‧︵‿₊}}$ ${\textsf{\color{#6d3048}୨ . 𝒘2𝒊 . ୧}}$ ${\textsf{\color{#5d1a23}₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd)
+![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd) ${\textsf{\color{#939795}⊹₊˚‧︵‿₊}}$ ${\textsf{\color{#c77f81}୨ . 𝒘2𝒊 . ୧}}$ ${\textsf{\color{#c35a71}₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd)
 
 <br>
 <div align=center>
 
 
-  ${\textsf{\color{#5d1a23} ┈━┈}}$ <a href="https://ppanchiko.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ![Image](https://github.com/user-attachments/assets/b82fb5f7-0222-47b2-a652-c8cd9ecbe975) <a href="https://panchos.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b></a> ${\textsf{\color{#5d1a23} ┈━┈}}$
+  ${\textsf{\color{#c35a71} ┈━┈}}$ <a href="https://ppanchiko.atabook.org/"><b>𝐀𝐭𝐚𝐛𝐨𝐨𝐤</b></a> ![Image](https://github.com/user-attachments/assets/b82fb5f7-0222-47b2-a652-c8cd9ecbe975) <a href="https://panchos.straw.page"><b>𝐒𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞</b></a> ${\textsf{\color{#c35a71} ┈━┈}}$
 
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 <br>

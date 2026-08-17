@@ -1,9 +1,9 @@
 <div align="center">
 
-![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/7def73a1ee72e12fcc4a5bfebe52b7a4a2e85104/20260623_112426.png)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/70fb369282da8f885357850159aca40449803ed1/20260817_173437.png)
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 
-![Image](https://github.com/user-attachments/assets/12121e58-4b47-475f-9f92-b6f4696d5ee7)
+![Image](https://github.com/user-attachments/assets/426a37e8-bbf3-4d0a-b11f-10a75adb1c76)
 
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 <div align="center">
@@ -12,7 +12,7 @@
 
 <br>
 
-![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/df7de327e58d2964225e4dac4f015d45689f4a81/20260623_113632.png)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/70fb369282da8f885357850159aca40449803ed1/87%20sin%20t%C3%ADtulo_20260817170343.png)
 
 ${\huge\textsf{\color{#475282} 𓆩 ˚ ᛝ 𝑺𝒉𝒆}}$ ${\huge\textsf{\color{#6d3048}/ 𝑯𝒆 /}}$ ${\huge\textsf{\color{#5d1a23}𝑨𝒏𝒚  ᛝ ˚ 𓆪 }}$
 
@@ -35,4 +35,4 @@ ${\textsf{\color{#475282}𝑫𝒏𝒊𝒖𝒇}}$ ${\textsf{\color{#6d3048}· ─
 
 
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
-![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/7def73a1ee72e12fcc4a5bfebe52b7a4a2e85104/20260623_114439.png)
+![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/70fb369282da8f885357850159aca40449803ed1/20260817_173456.png)

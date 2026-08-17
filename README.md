@@ -8,7 +8,7 @@
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 <div align="center">
 
-![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%B3%F0%9D%92%90%F0%9D%92%97%F0%9D%92%86&extraCount=72161&color=11162c&labelColor=5d1a23"/></a> ![Image](https://github.com/user-attachments/assets/4a93c674-0910-4250-9f13-44627d3d22c3)<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=%F0%9D%91%AC%F0%9D%92%8F%F0%9D%92%97%F0%9D%92%9A&extraCount=72161&color=5d1a23&labelColor=11162c"/></a> ![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)
+![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)<a href="https://hits.sh/github.com/ChildSacrifice/"><img alt="Hits" src="https://hits.sh/github.com/ChildSacrifice.svg?label=Envy%20%E2%99%A1&extraCount=81895&color=e3abb2&labelColor=9c1a4e"/></a>![Image](https://github.com/user-attachments/assets/4a93c674-0910-4250-9f13-44627d3d22c3) <a href="https://hits.sh/github.com/ChildSacrifice/"><img alt="Hits" src="https://hits.sh/github.com/ChildSacrifice.svg?label=Love%20%E2%99%A1&extraCount=81895&color=5e1e39&labelColor=dd9da4"/></a>![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)
 
 <br>
 

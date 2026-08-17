@@ -3,7 +3,7 @@
 ![image alt](https://github.com/ChildSacrifice/DeadAndBr0ken/blob/70fb369282da8f885357850159aca40449803ed1/20260817_173437.png)
 ![Image](https://github.com/user-attachments/assets/6555b46a-325f-4a9d-9905-9e9a3136f0ef)
 
-![Image](https://github.com/user-attachments/assets/426a37e8-bbf3-4d0a-b11f-10a75adb1c76)
+![Image](https://github.com/user-attachments/assets/8b4fd418-942f-4978-8e5a-2e6829b65522)
 
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 <div align="center">

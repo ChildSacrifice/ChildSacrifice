@@ -18,7 +18,7 @@ ${\huge\textsf{\color{#939795} 𓆩 ˚ ᛝ 𝑺𝒉𝒆}}$ ${\huge\textsf{\color
 
 ${\textsf{\color{#939795}𓆩 𝑫𝒏𝒊𝒖𝒇}}$ ${\textsf{\color{#c77f81} ♡ }}$ ${\textsf{\color{#c77f81}𝒊𝒏𝒕 𝒃𝒚}}$ ${\textsf{\color{#c35a71} 𝒂𝒕𝒂.  𝒑𝒍𝒔 𓆪}}$
 
-![Image](https://github.com/user-attachments/assets/ae122822-3bac-416c-9e48-c7edd4546594) ${\textsf{\color{#939795}⊹₊˚‧︵‿₊}}$ ${\textsf{\color{#c77f81}୨ . 𝒘2𝒊 . ୧}}$ ${\textsf{\color{#c35a71}₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/ae122822-3bac-416c-9e48-c7edd4546594)
+![Image](https://github.com/user-attachments/assets/7e0cd0d4-5259-4e5e-b63a-9021b1fcf57e) ${\textsf{\color{#939795}⊹₊˚‧︵‿₊}}$ ${\textsf{\color{#c77f81}୨ . 𝒘2𝒊 . ୧}}$ ${\textsf{\color{#c35a71}₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/7e0cd0d4-5259-4e5e-b63a-9021b1fcf57e)
 
 <br>
 <div align=center>
@@ -30,7 +30,7 @@ ${\textsf{\color{#939795}𓆩 𝑫𝒏𝒊𝒖𝒇}}$ ${\textsf{\color{#c77f81} 
 <br>
 <p align = "center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fjalla+One&size=25&duration=2000&pause=2000&color=5D1A23&center=true&vCenter=true&width=500&lines=It's+Fun+To+Lose+;And+To+Pretend" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Bitcount+Grid+Double&size=27&duration=2100&pause=7&color=C35A71&center=true&vCenter=true&width=435&lines=%22Better+Luck+Next+Time...%22;%22Better+Luck+Next+Time%22" alt="Typing SVG" /></a>
 <div align=center>
 
 

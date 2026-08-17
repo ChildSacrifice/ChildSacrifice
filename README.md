@@ -8,7 +8,7 @@
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 <div align="center">
 
-![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)<a href="https://hits.sh/github.com/ChildSacrifice/"><img alt="Hits" src="https://hits.sh/github.com/ChildSacrifice.svg?label=Envy%20%E2%99%A1&extraCount=81895&color=e3abb2&labelColor=9c1a4e"/></a>![Image](https://github.com/user-attachments/assets/4a93c674-0910-4250-9f13-44627d3d22c3) <a href="https://hits.sh/github.com/ChildSacrifice/"><img alt="Hits" src="https://hits.sh/github.com/ChildSacrifice.svg?label=Love%20%E2%99%A1&extraCount=81895&color=5e1e39&labelColor=dd9da4"/></a>![Image](https://github.com/user-attachments/assets/15a1c54a-0d85-4f1e-8266-4ec47cf0011d)
+![Image](https://github.com/user-attachments/assets/93bc9feb-f8d9-48cb-a3e8-90aa80741cc0)<a href="https://hits.sh/github.com/ChildSacrifice/"><img alt="Hits" src="https://hits.sh/github.com/ChildSacrifice.svg?label=Envy%20%E2%99%A1&extraCount=81895&color=e3abb2&labelColor=9c1a4e"/></a> ![Image](https://github.com/user-attachments/assets/3664f7a8-ec5a-4fcd-b7d5-c343ceaec4c6) <a href="https://hits.sh/github.com/ChildSacrifice/"><img alt="Hits" src="https://hits.sh/github.com/ChildSacrifice.svg?label=Love%20%E2%99%A1&extraCount=81895&color=5e1e39&labelColor=dd9da4"/></a>![Image](https://github.com/user-attachments/assets/93bc9feb-f8d9-48cb-a3e8-90aa80741cc0)
 
 <br>
 
@@ -16,9 +16,9 @@
 
 ${\huge\textsf{\color{#939795} 𓆩 ˚ ᛝ 𝑺𝒉𝒆}}$ ${\huge\textsf{\color{#c77f81}/ 𝑯𝒆 /}}$ ${\huge\textsf{\color{#c35a71}𝑨𝒏𝒚  ᛝ ˚ 𓆪 }}$
 
-${\textsf{\color{#939795}𝑫𝒏𝒊𝒖𝒇}}$ ${\textsf{\color{#c77f81}𓆩 ♡ 𓆪}}$ ${\textsf{\color{#c35a71}𝒊𝒏𝒕 𝒃𝒚 𝒂𝒕𝒂. 𝒑𝒍𝒔 }}$
+${\textsf{\color{#939795}𓆩 𝑫𝒏𝒊𝒖𝒇}}$ ${\textsf{\color{#c77f81} ♡ }}$ ${\textsf{\color{#c77f81}𝒊𝒏𝒕 𝒃𝒚}}$ ${\textsf{\color{#c35a71} 𝒂𝒕𝒂.  𝒑𝒍𝒔 𓆪}}$
 
-![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd) ${\textsf{\color{#939795}⊹₊˚‧︵‿₊}}$ ${\textsf{\color{#c77f81}୨ . 𝒘2𝒊 . ୧}}$ ${\textsf{\color{#c35a71}₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/f6278010-0013-4896-b328-3136f1d991bd)
+![Image](https://github.com/user-attachments/assets/ae122822-3bac-416c-9e48-c7edd4546594) ${\textsf{\color{#939795}⊹₊˚‧︵‿₊}}$ ${\textsf{\color{#c77f81}୨ . 𝒘2𝒊 . ୧}}$ ${\textsf{\color{#c35a71}₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/ae122822-3bac-416c-9e48-c7edd4546594)
 
 <br>
 <div align=center>
